@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning HTML full course and java programming language
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on  HTML full course and java programming language
-- 📫 You can send me messages on my email address h220427q@hit.ac.zw
+- 📫 You can send me messages on my email address h220427q@hit.ac.zw or paulmarwizi02@gmail.com or 202401863@zcasu.edu.zm
 - 
 
 <!---
